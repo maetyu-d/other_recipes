@@ -21,7 +21,7 @@ This daube is a useful dish for those who have to get a dinner ready when they g
 
 ----------
 
-For the topping, stir together:
+For the topping (not part of the original recipe), stir together:
 
 * 100g of olives
 * 3 cloves of garlic, finely chopped
@@ -31,6 +31,6 @@ For the topping, stir together:
 * Half a tablespoon of olive oil
 * 85g of flat leaf parsley, finely chopped.
 
-Add when reheating or 10 mins before the end of cooking.
+Add to the daube when reheating, or 10 mins before the end of cooking.
 
 
